@@ -1,0 +1,1 @@
+# Kompedium-Psychologii.
